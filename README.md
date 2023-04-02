@@ -1,6 +1,6 @@
 #🔥🔥Cyber HVNC Builder 🔥🔥ü
 
-# Telegram : @XCyberToolsX/Cyber-HVNC-RAT-202
+# Telegram : @XCyberToolsX
 
 <img src="https://resimupload.org/images/2023/04/02/photo_2023-04-02_18-03-38.jpg" alt="photo_2023-04-02_18-03-38.jpg" border="0" />
 https://t.me/c/1521011174/6763
